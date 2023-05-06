@@ -1,4 +1,4 @@
-## 建北電資 CKEFGISC 
+## CKEFGISC 建北電資
 
 <!--
 
